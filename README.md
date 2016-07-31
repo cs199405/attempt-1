@@ -1,2 +1,7 @@
 # attempt-1
-just again another attempt
+
+
+
+Hello brothers n sisters
+
+looking for some great ways to learn here
